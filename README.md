@@ -1,1 +1,1 @@
-# super-octo-dollop. 
+https://github.com/mon2000x111-sketch/diceware-wordlist-bg/pull/2# super-octo-dollop. 
